@@ -12,6 +12,6 @@
 ### por favo seja meu amigo༼ つ ◕_◕ ༽つ
 
 
-### 👍 se inscreva no meu canal do youtube👍
+### 👍 se inscreva no meu canal do youtube👍 GD_Fredbear
 
-### https://media1.tenor.com/m/zZOt7alSzAMAAAAd/gojo-gojo-satoru.gif
+![](https://media1.tenor.com/m/zZOt7alSzAMAAAAd/gojo-gojo-satoru.gif)
